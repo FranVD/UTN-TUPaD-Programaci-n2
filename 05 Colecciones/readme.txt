@@ -1,1 +1,0 @@
-Franco Reynoso Arellano - C13
